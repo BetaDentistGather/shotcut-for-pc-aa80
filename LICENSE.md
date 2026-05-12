@@ -1,4 +1,4 @@
-# 
+# rare Shotcut for PC | Shotcut for Windows Script | batch-processing + color-correction offers the most advanced Shotcut for PC | Shotcut for Windows script, with batch-processing
 
 
 
